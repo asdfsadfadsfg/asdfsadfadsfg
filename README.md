@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Niket Bansal.
+- 👀 I’m interested in Coding.
+- 🌱 I’m currently learning class 9 in G.D.Goenka Public School.
+- 📫 You can contact me at niket.bansal.1319@gdgoenkarohini.edu.in 
